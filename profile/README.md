@@ -70,6 +70,8 @@ Daily Directives, Begin each day with a message from the resort’s management l
 | **Indonesian** | ✅ | ❌ | ✅ |
 | **Spanish - Latin America** | ✅ | ❌ | ❌ |
 
+>Related Project: [WANTED: Wild Sluts 🔞](https://github.com/WANTED-Wild-Sluts)
+
 ---
 
 © Dirty Adventures. All rights reserved.
